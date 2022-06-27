@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @xifer-12
+- 👀 I’m No code; i've no experience, but i want to try. 
